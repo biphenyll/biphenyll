@@ -7,4 +7,4 @@ I use It/Its or any pronouns, I'm agender, aroace, and a 14 y/o Filipino
 
 <sub>c*h encouraged and w2i bcus im always oftb/afk, doesnt matter if it's in my name or not, i rly need space in my name yk?
 
-<sub>Lastly: I don't have a DNI list, I block/hide freely
+<sub>Lastly: I don't have a DNI list (this doesn't imply that I support or like any paraphilias or wtv problematic ppl do), I block/hide freely
