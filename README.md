@@ -1,5 +1,5 @@
-![image alt](https://files.catbox.moe/eita4f.png)
-<p align="right"> <sub><sub>eh i tried my best to drw rise!donnie... also one of my friends call me Randal or Colemak, so uh feel free to call me one of these...
+![image alt](https://files.catbox.moe/qvk8w9.png)
+<p align="right"> <sub><sub>eh i tried my best to drw rise!donnie
 
 ## $\color{#442e4e}{Before \space You\space Interact}$
 
