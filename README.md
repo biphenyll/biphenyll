@@ -1,5 +1,5 @@
 ![image alt](https://files.catbox.moe/qvk8w9.png)
-<p align="right"> <sub><sub>eh i tried my best drwing rise!donnie
+<p align="right"> <sub><sub>eh i tried my best drwing rise!donnie & i got lazy
 
 ## $\color{#442e4e}{Before \space You\space Interact}$
 
