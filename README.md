@@ -3,7 +3,7 @@
 
 ## $\color{#442e4e}{Before \space You\space Interact}$
 
-<p align="center"> <sub>im Biphenyl, my other friends call me Randal or Colemak so uhm feel free to refer to me as one these names. I'm a 14 y/o 🇵🇭, im apagender and aroace. my preferred prns is It/Its (cus im a thing), but idm any prns as well.
+<p align="center"> <sub>im Biphenyl, my other friends call me Randal or Colemak so uhm feel free to refer to me as one these names. I'm a 14 y/o 🇵🇭, im apagender and aroace. my preferred prns is It/Its (cus im a thing), but idm any prns as well. im in a queer platonic relationship irl so uh yea.. ^_^
 
 <p align="center"> <sub>im asocial and quiet, and i can be a bit unresponsive when afk or idk wtf i will say. i can come off as dry to ppl im not close to (or im not invested in the convo), but im vry friendly, nonetheless. im also immature and a lil dramatic, maybe a bit overdramatic whn i find out my fave thing is bad or smth... im also low empathetic to ppl im not close to. i forget quite easily, idk maybe im a goldfish irl. OH right, im also afk (almost) all of the time, so feel free to c+h and/or w2i!
 
