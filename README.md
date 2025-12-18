@@ -12,7 +12,7 @@
 ## $\color{#603252}{Interests}$
 <p align="center"> <sub>i only have three main interests, which is: TMNT (spec Rise and 2k12), RanFren, Kocoo Land. I hve other interests but i chose not to mention them, since im kinda inactive in the fandom (and bcus i forgot almost all of them). i dnt talk abt my interests often, bcus (1) i dnt hve headcanons, (2) i dnt binge watch/read em.
 
-<p align="center"> <sub>i mainly listen to MSI and Mother Mother. sometimes Femtanyl, The Caretaker, STOMACH BOOK, Kikuo, MARETU, RITCHRD, Maebi, Yaelokre, Nero's Day at Disneyland, and PASTEL GHOST
+<p align="center"> <sub>i mainly listen to MSI and Mother Mother. sometimes Femtanyl, The Caretaker, STOMACH BOOK, Kikuo, MARETU, RITCHRD, Maebi, Yaelokre, Nero's Day at Disneyland, and Pastel Ghost
 
 ## $\color{#7a305d}{DNI\space List}$
 <p align="right"> <sub>i block/hide ppl freely, bcus i dont have a DNI list—tho this doesnt imply tht i support or like any paraphilias or wtv problematic ppl do/say.
