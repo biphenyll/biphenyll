@@ -10,9 +10,9 @@
 <p align="center"> <sub>jst like how the othrs explain their humour, mine is also kind of darkish humour (idk how to explain th othrs). im rly sarcastic all the time and i dont use tonetags unless u ask. i cuss/slur a lot as well, so lmk if u want me to stop.
 
 ## $\color{#603252}{Interests}$
-<p align="center"> <sub>i only have two main interests, which is: TMNT (spec Rise and 2k12), and RanFren. I hve other interests but i chose not to mention them, since im kinda inactive in the fandom (and bcus i forgot almost all of them). i dnt talk abt my interests often, bcus (1) i dnt hve headcanons, (2) i dnt binge watch/read em.
+<p align="center"> <sub>i only have three main interests, which is: TMNT (spec Rise and 2k12), RanFren, Kocoo Land. I hve other interests but i chose not to mention them, since im kinda inactive in the fandom (and bcus i forgot almost all of them). i dnt talk abt my interests often, bcus (1) i dnt hve headcanons, (2) i dnt binge watch/read em.
 
-<p align="center"> <sub>i mainly listen to MSI and Mother Mother. sometimes Femtanyl, The Caretaker, STOMACH BOOK, Kikuo, MARETU, RITCHRD, Maebi, Yaelokre, and Nero's Day at Disneyland
+<p align="center"> <sub>i mainly listen to MSI and Mother Mother. sometimes Femtanyl, The Caretaker, STOMACH BOOK, Kikuo, MARETU, RITCHRD, Maebi, Yaelokre, Nero's Day at Disneyland, and PASTEL GHOST
 
 ## $\color{#7a305d}{DNI\space List}$
 <p align="right"> <sub>i block/hide ppl freely, bcus i dont have a DNI list—tho this doesnt imply tht i support or like any paraphilias or wtv problematic ppl do/say.
