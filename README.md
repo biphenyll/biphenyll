@@ -14,6 +14,6 @@
 
 <sub>$\color{#851207}{\textsf{c+h is still encouraged and/or w2i cus im afk}}$
 
-<sub>[Main Account](https://github.com/terphenyls) , [Ata](https://bootyyyshaker9000.atabook.org/) , [Randal's Strawpage](https://d4rkprince.straw.page/)
+<sub>[Ata](https://bootyyyshaker9000.atabook.org/) , [Strawpage](https://triphenylphosphine.straw.page/)
 
 <sub>im gona rmk ts soon
