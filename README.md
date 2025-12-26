@@ -17,5 +17,6 @@
 
 <sub>$\color{#897a23}{\textsf{c+h is always encouraged and/or w2i cus im afk}}$
 
+<sub>$\color{#942419}{\textsf{no dni list, i block/hide freely}}$
 
 <sub>[Ata](https://bootyyyshaker9000.atabook.org/) , [Strawpage](https://triphenylphosphine.straw.page/)
