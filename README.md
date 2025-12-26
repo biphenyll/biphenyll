@@ -13,7 +13,7 @@
 <sub>i get sudden outbursts of anger, judge quickly without knwing things, and i say things without thinking sry. im vry sarcastic, so prepare for random jks (mostly dark idk) after u speak, btw i dont use tonetags unless asked. i usually sit at the bakery or at the TMNT area. also pls lemme knw if i made u uncomfy or smth,, i dont hve a DNI list, i block/hide freely
 
 <sub>i dont communicate in socials and i tend to ghost ppl (especially friends),, mostly bcus my parents are watching my evry move, thts why im vry inactive in socials.
-another reason is tht i prolly dont like communicating often, i will only communicate if it's important or smth. if you start sending text messages first, youll prolly get no response or jst a short one (cus i dont like texting tht much or im busy)
+another reason is tht i prolly dont like communicating often, i will only communicate if it's important or smth. if you start sending text messages first, youll prolly get no response or jst a short/late one (cus i dont like texting tht much or im busy)
 
 <sub>$\color{#851207}{\textsf{c+h is still encouraged and/or w2i cus im afk}}$
 
