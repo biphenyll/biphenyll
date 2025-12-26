@@ -1,22 +1,21 @@
-### longer BYI. if lazy to read, check out strawpage.
+### longer BYI. if lazy to read, check out strawpage. you'll prolly miss out a bunch of info tho :/
 
 ![image alt](https://files.catbox.moe/avs68n.gif)
-<p align="right"><sub><sub>i wanted to make a banner, but i got lazy and artblock lol
-
-<p align="center"><sub>$\color{#851207}{\textsf{Colemak / Randal , 14 y/o , it/its or any prns}}$
+<p align="right"><sub><sub>i wanted to make a banner, but i got lazy and artblock
 
 ![image alt](https://files.catbox.moe/zq26ig.gif)
-<sub>heylo, i may not be cool as u might think i am (if u did think abt it ofc). im prty quiet as hell, im not rly interactive the only time i int w some1 if theyre interesting or to crown them, and i can be a bit unresponsive. i have little interests and im only in two fandoms (tht im more active in), which are TMNT (spec 2k12 & rise) and Ranfren. i also dont talk abt my interests often, bcus i dont binge watch/read em and i hve no headcanons,.
+<sub>im colemak/randal idk, im 14 and i use any prns (pref it/its cus im a thing), im aroace and platonically married irl (irrelevant), im also filipino but im more fluent in english, and i hve a prty shitty memory
+<sub>im currently devolving and dying inside!
 
-<sub>im not energetic or smth. im vry laggy and i get a bit cringed if i force myself to use all caps jst to act like im hpy or smth (smtimes i am, but i chose not to use them unless i feel like doing it). i will be dry to u, unless friend (or if ure interesting, again), but im vry friendly, trust. 
+<sub>im not rly interactive, i only approach ppl i find interesting or if they int first, i mostly interact with my friends. im also prty quiet and can be a bit unresponsive, especially to those im friends with (including close friends), i prefer if u start communicating with me first than letting me do it. i hve a very blank mind, ok??????? im prty dry to almost evryone, but im friendly, trust. im also always afk.. so w2i pls, and if i dont respond that means idk wtf i will say, i jst dont want to reply, or im actually busy
 
-<sub>i get sudden outbursts of anger, judge quickly without knwing things, and i say things without thinking sry. im vry sarcastic, so prepare for random jks (mostly dark idk) after u speak, btw i dont use tonetags unless asked. i usually sit at the bakery or at the TMNT area. also pls lemme knw if i made u uncomfy or smth,, i dont hve a DNI list, i block/hide freely
+<sub>im laggy, hence why i rarely do erratic movement in pt or move my spot at the bakery. im usually seen at the bakery, smtimes at the TMNT area.
 
-<sub>i dont communicate in socials and i tend to ghost ppl (especially friends),, mostly bcus my parents are watching my evry move, thts why im vry inactive in socials.
-another reason is tht i prolly dont like communicating often, i will only communicate if it's important or smth. if you start sending text messages first, youll prolly get no response or jst a short/late one (cus i dont like texting tht much or im busy)
+<sub>im always sarcastic, i tend to jk abt abuse, death, suicide, and a bit of nsfw and flesh/gore (its jst dark idk ok?). if u dont like these type of jks, jst lemme knw. i hve other jks anyway, but idk how ill explain tht, i also cuss/slur a lot. i jk in rly srs situations as well (maybe), thts jst how i cope (im rise!leo coded, wait no im not). if ure too gullible, u may ask if im srs or not. ok thats all
 
-<sub>$\color{#851207}{\textsf{c+h is still encouraged and/or w2i cus im afk}}$
+<sub>nvm theres more—i only have two fixations, TMNT and RanFren. i have other interests as well which are GOHOME, Squirrel Stapler, Iron Lung (game), Crow 64, etc etc (i forgot). i dont talk abt my interests, i rarely binge watch/read my interests, i also dont have headcanons either.
+
+<sub>$\color{#897a23}{\textsf{c+h is always encouraged and/or w2i cus im afk}}$
+
 
 <sub>[Ata](https://bootyyyshaker9000.atabook.org/) , [Strawpage](https://triphenylphosphine.straw.page/)
-
-<sub>im gona rmk ts soon
