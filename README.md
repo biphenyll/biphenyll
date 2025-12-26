@@ -11,7 +11,7 @@
 
 <sub>im laggy, hence why i rarely do erratic movement in pt or move my spot at the bakery. im usually seen at the bakery, smtimes at the TMNT area.
 
-<sub>im always sarcastic, i tend to jk abt abuse, death, suicide, and a bit of nsfw and flesh/gore (its jst dark idk ok?). if u dont like these type of jks, jst lemme knw. i hve other jks anyway, but idk how ill explain tht, i also cuss/slur a lot. i jk in rly srs situations as well (maybe), thts jst how i cope (im rise!leo coded, wait no im not). if ure too gullible, u may ask if im srs or not. ok thats all
+<sub>im always sarcastic, i tend to jk abt abuse, death, suicide, and a bit of nsfw and flesh/gore (its jst dark idk ok?). if u dont like these type of jks, jst lemme knw. i hve other jks anyway, but idk how ill explain tht,, i also cuss/slur a lot. i dont use tonetags unless asked. ok thats all
 
 <sub>nvm theres more—i only have two fixations, TMNT and RanFren. i have other interests as well which are GOHOME, Squirrel Stapler, Iron Lung (game), Crow 64, etc etc (i forgot). i dont talk abt my interests, i rarely binge watch/read my interests, i also dont have headcanons either.
 
