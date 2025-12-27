@@ -1,19 +1,14 @@
-### longer BYI. if lazy to read, check out strawpage. you'll prolly miss out a bunch of info tho :/
+### longer BYI. if lazy to read, check out strawpage. you'll prolly miss out a bunch of info though
 
 ![image alt](https://files.catbox.moe/avs68n.gif)
-<p align="right"><sub><sub>i wanted to make a banner, but i got lazy and artblock
+<p align="center"><sub><sub>colemak/randal, 14 y/o 🇵🇭, any/it prns, cassgender
 
 ![image alt](https://files.catbox.moe/zq26ig.gif)
-<sub>im colemak/randal idk, im 14 and i use any prns (pref it/its cus im a thing), im aroace and platonically married irl (irrelevant), im also filipino but im more fluent in english, and i hve a prty shitty memory
-<sub>im currently devolving and dying inside!
+<sub>not rly interactive, will only interact ppl i find interesting or if they start, i dont communicate often and i tend to be a bit unresponsive when busy or idk wtf i will say. i prefer if u start the conversation, i have nothing to talk abt sadly, also prepare for a late to no response if i dont find it interesting and, again, i hve no idea wht i will respond. im dry and low empathetic to almost every1, this might include one of my friends as well (close or not). im always sarcastic, dont take my jks srsly, i dont use tonetags (unless asked). my jks consists of dark humour and wtv humour i stole from ppl, even strangers.
 
-<sub>im not rly interactive, i only approach ppl i find interesting or if they int first, i mostly interact with my friends. im also prty quiet and can be a bit unresponsive, especially to those im friends with (including close friends), i prefer if u start communicating with me first than letting me do it. i hve a very blank mind, ok??????? im prty dry to almost evryone, but im friendly, trust. im also always afk.. so w2i pls, and if i dont respond that means idk wtf i will say, i jst dont want to reply, or im actually busy
+<sub>i mostly stay at the bakery (in/out), sometimes at the bottom of the map (most spec the TMNT area). im also rly laggy, hence why i rarely do erratic movements in pt or move (i get to the bottom of the map by using one of my skins to tp obviously)
 
-<sub>im laggy, hence why i rarely do erratic movement in pt or move my spot at the bakery. im usually seen at the bakery, smtimes at the TMNT area.
-
-<sub>im always sarcastic, i tend to jk abt abuse, death, suicide, and a bit of nsfw and flesh/gore (its jst dark idk ok?). if u dont like these type of jks, jst lemme knw. i hve other jks anyway, but idk how ill explain tht,, i also cuss/slur a lot. i dont use tonetags unless asked. ok thats all
-
-<sub>nvm theres more—i only have two fixations, TMNT and RanFren. i have other interests as well which are GOHOME, Squirrel Stapler, Iron Lung (game), Crow 64, etc etc (i forgot). i dont talk abt my interests, i rarely binge watch/read my interests, i also dont have headcanons nor theories either.
+<sub>i only have two main interests, TMNT (spec rottmnt & 2k12) and RanFren. my other interests are GOHOME, Garn 47, Crow 64, Iron Lung (game), Squirrel Stapler, Yun Seven's games, ttwoskies, etcetcetc. i dont talk abt any of my interests (including main) cus i rarely watch/read them, and i have no headcanons nor theories either.
 
 <sub>$\color{#897a23}{\textsf{c+h is always encouraged and/or w2i cus im afk}}$
 
