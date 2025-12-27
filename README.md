@@ -13,7 +13,7 @@
 
 <sub>im always sarcastic, i tend to jk abt abuse, death, suicide, and a bit of nsfw and flesh/gore (its jst dark idk ok?). if u dont like these type of jks, jst lemme knw. i hve other jks anyway, but idk how ill explain tht,, i also cuss/slur a lot. i dont use tonetags unless asked. ok thats all
 
-<sub>nvm theres more—i only have two fixations, TMNT and RanFren. i have other interests as well which are GOHOME, Squirrel Stapler, Iron Lung (game), Crow 64, etc etc (i forgot). i dont talk abt my interests, i rarely binge watch/read my interests, i also dont have headcanons either.
+<sub>nvm theres more—i only have two fixations, TMNT and RanFren. i have other interests as well which are GOHOME, Squirrel Stapler, Iron Lung (game), Crow 64, etc etc (i forgot). i dont talk abt my interests, i rarely binge watch/read my interests, i also dont have headcanons nor theories either.
 
 <sub>$\color{#897a23}{\textsf{c+h is always encouraged and/or w2i cus im afk}}$
 
